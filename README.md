@@ -1,7 +1,7 @@
-Portfolio
+Garrett Blythe's Portfolio
 
 Free use images from https://unsplash.com
 
-Links to support these artists below photos.
+Visit to support these artists. 
 
 2018
